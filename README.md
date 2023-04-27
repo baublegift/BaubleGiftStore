@@ -1,5 +1,7 @@
 ![BaubleGift Store](https://baublegift.com/wp-content/uploads/2023/02/Beige-Modern-Beauty-Fashion-Designer-SEEK-Cover-Image-851-%C3%97-315-px.png)
+
 # BaubleGift Store Website
+
 Welcome to BaubleGift Store – Long Sleeve, White Hoodie, Custom T-Shirt – where you can shop your favorite T-shirt on a small budget with the highest satisfaction. Being established in 2020, we thrive to make our customers happy by working hard and doing our best at customer service. Our main headquarter is based in Florida for the professional and unique designs formulated by experts on arts and graphic designs. From the latest phenomenon; political scandals to favorite hobbies, activities, causes, and interests, it’s impossible for us to catch the latest trend and serve you one-of-a-kind ideas and merchandise at [**BaubleGift Store**](https://baublegift.com)!
 
 
@@ -51,26 +53,46 @@ Our target market consists of people who prefer to dress casually and comfortabl
   
 
 **BAUBLE GIFT STORE**
+
 Long Sleeve, White Hoodie, Custom T-Shirt
+
 Email: [support@baublegift.com](support@baublegift.com)
+
 Website: [https://baublegift.com](https://baublegift.com)
+
 Address: 4215 Malickson Drive Parrish, FL 34219, United States
+
 Office hours: Monday-Friday 9 am to 5 pm Eastern Time
 
 **Subscribe me on available our socials:**
 Facebook: [https://facebook.com/baublegift](https://facebook.com/baublegift)
+
 Twitter: [https://twitter.com/BaubleGift](https://twitter.com/BaubleGift)
+
 Vimeo: [https://vimeo.com/baublegift](https://vimeo.com/baublegift)
+
 Tiktok: [https://tiktok.com/@baublegift](https://tiktok.com/@baublegift)
+
 Figma: [https://www.figma.com/@baublegift](https://www.figma.com/@baublegift)
+
 Instagram: [https://instagram.com/baublegift](https://instagram.com/baublegift)
+
 Github: [https://github.com/baublegift](https://github.com/baublegift)
+
 Pinterest: [https://www.pinterest.com/baublegift](https://www.pinterest.com/baublegift)
+
 Creative Market: [https://creativemarket.com/users/BaubleGift](https://creativemarket.com/users/BaubleGift)
+
 Codepen: [https://codepen.io/baublegift](https://codepen.io/baublegift)
+
 Behance: [https://www.behance.net/baublegift](https://www.behance.net/baublegift)
+
 Linkedin: [https://linkedin.com/in/baublegift](https://linkedin.com/in/baublegift)
+
 Medium: [https://medium.com/@baublegift](https://medium.com/@baublegift)
+
 Dribble: [https://dribbble.com](https://dribbble.com)
+
 Tumblr: [https://baublegift.tumblr.com](https://baublegift.tumblr.com)
+
 Youtube: [https://www.youtube.com/@baublegift](https://www.youtube.com/@baublegift)
